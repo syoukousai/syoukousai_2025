@@ -1,1 +1,0 @@
-# syoukousai_2025
